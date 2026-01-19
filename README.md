@@ -4,6 +4,8 @@ hello guys gays idk lol lol
 
 im a half-Java half-Python half-life developer
 
+i know English but my main language is Russian
+ 
 this is my profile ok yeah good good
 
 yeasss [github.com/MOZZYstudios](https://github.com/MOZZYstudios) - idk studio
