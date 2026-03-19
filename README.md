@@ -2,7 +2,7 @@
 im veryverybadly
 frontend dev
 
-my website b4dly.is-a.dev
+my website [b4dly.is-a.dev](https://b4dly.is-a.dev/)
 
 yeasss [github.com/MOZZYstudios](https://github.com/MOZZYstudios) - idk studio
 
