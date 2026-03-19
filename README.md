@@ -2,7 +2,7 @@
 im veryverybadly
 frontend dev
 
-my website https://veryverybadly.github.io/vizit0chka/ 
+my website b4dly.is-a.dev
 
 yeasss [github.com/MOZZYstudios](https://github.com/MOZZYstudios) - idk studio
 
