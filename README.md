@@ -11,7 +11,4 @@ yeasss [github.com/MOZZYstudios](https://github.com/MOZZYstudios) - idk studio
 
 ## сука ты конченая козлина ты ебаная
 
-join moonland pls [ds](https://discord.gg/s3NrXyYjnG)  
-алсо если ты ебанутый [tg](https://t.me/moonlandre)
-
-мунтр разбань мой твинк
+тут было
