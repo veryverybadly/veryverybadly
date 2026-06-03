@@ -13,4 +13,4 @@ yeasss [github.com/MOZZYstudios](https://github.com/MOZZYstudios) - idk studio
 
 ## сука ты конченая козлина ты ебаная
 
-тут было
+стаксидев соси писю
