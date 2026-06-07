@@ -1,5 +1,5 @@
 > [!CAUTION]
-> Осторожно! Пользователь не имеет одного члена семьи!
+> ебебебебебебеб
 ## hell.o.
 im veryverybadly
 frontend dev
