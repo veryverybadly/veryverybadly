@@ -1,5 +1,5 @@
 > [!CAUTION]
-> ебебебебебебеб
+> shitcode vibecoder
 ## hell.o.
 very very badly
 https://b4dly.ru
