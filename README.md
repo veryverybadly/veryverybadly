@@ -1,5 +1,5 @@
 > [!CAUTION]
-> shitcode vibecoder
+> pashol naxxuy kozel
 ## hell.o.
 very very badly
 https://b4dly.ru
